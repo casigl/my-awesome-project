@@ -1,2 +1,2 @@
-**Caroline Sigl**
-*September 20, 2021*
+1. **Caroline Sigl**
+2. *September 20, 2021*
